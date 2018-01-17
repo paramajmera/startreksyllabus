@@ -16,4 +16,4 @@ Butler, J. *Gender Trouble*
 **Week 4**
 Fanon, F. *Black Skin, White Masks*
 
-### Borrowed with thanks from P. Sweeney
+## Borrowed with thanks from P. Sweeney
